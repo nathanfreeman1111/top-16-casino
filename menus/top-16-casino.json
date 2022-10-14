@@ -1,0 +1,26 @@
+{
+  "context-menu": {
+    "atom-text-editor": [
+      {
+        "label": "Toggle top-16-casino",
+        "command": "top-16-casino:toggle"
+      }
+    ]
+  },
+  "menu": [
+    {
+      "label": "Packages",
+      "submenu": [
+        {
+          "label": "top-16-casino",
+          "submenu": [
+            {
+              "label": "Toggle",
+              "command": "top-16-casino:toggle"
+            }
+          ]
+        }
+      ]
+    }
+  ]
+}
