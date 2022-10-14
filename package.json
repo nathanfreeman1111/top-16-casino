@@ -12,7 +12,7 @@
   "activationCommands": {
     "atom-workspace": "top-16-casino:toggle"
   },
-  "repository": "https://github.com/atom/top-16-casino",
+  "repository": "https://github.com/nathanfreeman1111/top-16-casino",
   "license": "MIT",
   "engines": {
     "atom": ">=1.0.0 <2.0.0"
