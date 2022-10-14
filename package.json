@@ -3,7 +3,12 @@
   "main": "./lib/top-16-casino",
   "version": "0.0.1",
   "description": "Onde achar os melhores cassinos de Bitcoin no Brasil? Veja aqui a nossa revisão detalhada com as melhores dicas sobre os cassinos que aceitam Bitcoin no Brasil.",
-  "keywords": ['best casino','casino','top casino','top'],
+  "keywords": [
+    "best casino",
+    "casino",
+    "top casino",
+    "top"
+  ],
   "activationCommands": {
     "atom-workspace": "top-16-casino:toggle"
   },
