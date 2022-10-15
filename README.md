@@ -1,15 +1,27 @@
 # top-16-casino package
 
-Melhores Cassinos de Bitcoin no Brasil Bitstarz: Melhor Site de Cassino de Bitcoin no Brasil 7bit Casino: Melhor Bônus de Boas-Vindas Fortune Jack: Melhor Coleção de Jogos para Cassino Bc Game: Melhor Cassino para Jogadores Experientes Cloudbet: Melhor Cassino para Novatos Bodog: Melhores Métodos de Pagamento 20Bet: Melhor Cassino para Jogos ao Vivo National: Melhor Atendimento e Suporte ao Cliente Bizzo: Melhor Promoção de Jogadas Grátis Betmotion: Melhores Promoções de Cassino Bitcoin
+10 Tips for Spring Cleaning Your Home in Style
 
-    Bitstarz - Melhor Cassino de Bitcoin do Brasil no Geral Prós Cassino referência absoluta em criptomoedas Atendimento de excelência a jogadores brasileiros Aceita criptomoedas e moedas tradicionais 125% até 1 BTC + 180 giros grátis
 
-Contras Sem um app móvel
 
-O BitStarz é um cassino confiável no Brasil e pode ser levado em conta como um cassino de Bitcoin sério e de excelente reputação. Fundado em 2016 e com licença expedida pela jurisdição de Curaçao, a empresa conta com suporte ao cliente e inúmeros jogos de cassino online a sua escolha.
+When the flowers start blooming and the sun streams in it’s time to fling open your windows, grab your cleaning supplies and shake off the doldrums of winter. Get your home in tip top shape with our checklist below!
 
-O que nos chama a atenção aqui é que não há um valor mínimo para saque (algo bastante positivo quando lidamos com criptomoedas). Além disso, os pagamentos podem ser feitos usando criptomoedas, bem como as moedas tradicionais como cartões de crédito, por exemplo.
+1. Dust Shelves and Tchotchkes: Take everything off the shelves, and go over all shelves and books with a feather duster. Use the dust-brush or crevice tool on a vacuum to reach into tight spots. Wipe the spines of leather-bound books with a clean, soft cloth.
 
-Layout e Design: 4,9/5
+2. Deep Clean Your Bathrooms: Spray a generous amount of bathroom spray or pine cleaner to the shower or bathroom walls. Allow cleaners to stand while other work is being done. Then go back and start scrubbing. To remove hard-water scale or mildew on shower heads, faucet heads and drains, soak them in vinegar. If the head isn't removable, position a plastic bag filled with vinegar over it and tape it shut.
 
-Por não haver um app disponível ainda para apostas pelo celular e demais dispositivos móveis, a empresa se esforçou bastante para trazer um layout robusto, claro e prático. A plataforma é bastante amigável e responsiva. Assim que você entra na página do cassino, você se depara com um menu horizontal que te leva aos principais jogos de cassino do site.
+3. Clean the Kitchen Sink: If there's lime buildup around the faucet, lay paper towels over the fixture and soak it with vinegar, letting it set for one hour. The deposits will soften and become easier to remove. To clean chrome, glass or stainless steel appliances, fill a spray bottle with a mixture of 50 percent rubbing alcohol and 50 percent water.
+
+4. Clean Upholstered Furnishings: Take cushions outside and gently beat them by hand to remove dust. If there are stains, check the pieces for care labels. Use a vacuum’s upholstery and crevice tools to clean under seat cushions.
+
+5. Refresh Your Window Coverings: To revive drab drapes, take them down, remove hooks and run them through an air-fluff cycle in the dryer with a damp towel (to attract the dust) for 15 minutes. Re-hang immediately. Wipe blinds with a damp cloth.
+
+6. Wash Out Trash Cans: To really clean garbage cans, spray them with a hose and dump out the water. Next, spray the inside with a disinfectant spray, scrub with a handled brush and rinse. Leave them upside down to dry.
+
+7. Guard Against Moisture: Check all doors and windows for leaks and drafts, particularly near the corners. Look for peeling and chipping paint, which can signal water intrusion. Seal any open areas between the frame and the wall to keep out water, which can deteriorate building materials.
+
+8. Clean Your Light Fixtures: A few minutes with a stepladder, a sponge, and some glass cleaner will brighten up your world. If your home has skylights or tall ceilings, consider investing in a stepladder and extended-reach dust-and-dirt-removal tools, all of which are available at your local hardware store and at home supply stores
+
+9. Dust Your Home Thoroughly: This includes hard-to-reach places, such as the tops bookshelves, ceiling fans and baseboards. Always work from the top of a room down, vacuuming the dust that settles on the floor. If you can, try to avoid using dusting sprays, which often contain unhealthy chemicals.
+
+10. Deep Clean Bedding: Launder bedding and pillows. If you change bedding for the season, air out the spring blankets for several hours before putting them on the bed. Store winter bedding in mildew-resistant containers after having it cleaned.
